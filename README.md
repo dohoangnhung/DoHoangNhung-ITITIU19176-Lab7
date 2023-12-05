@@ -1,3 +1,4 @@
 # DoHoangNhung-ITITIU19176-Lab7
 
-![image](https://github.com/dohoangnhung/DoHoangNhung-ITITIU19176-Lab7/assets/74888302/4997d4af-e53f-4dbf-b1ac-e304589010af)
+![image](https://github.com/dohoangnhung/DoHoangNhung-ITITIU19176-Lab7/assets/74888302/a89ce739-a8f9-4a34-b4e0-d51bc28f73a4)
+
